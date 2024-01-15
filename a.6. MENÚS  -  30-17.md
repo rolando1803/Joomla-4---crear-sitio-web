@@ -48,7 +48,7 @@
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/eb5ffd1e-0d47-46a1-87b0-cc3c1d0292ea)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/5cc3614e-333a-48e7-9df6-59f2d9f9927e)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/fd2137ae-80c3-426a-a0fb-f1e9c6fa37e3)
-![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/22d6ec72-1b04-4440-a8b9-9470f78407c7)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/e4994bbb-b55a-407d-bc32-cbf3a17e38e7)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/479f1c30-9891-4f99-8469-f05f8ca7446d)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/a6aa0a27-e452-4f41-875a-ecca678c21b4)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/d506d776-72aa-468b-a5bf-bed97d462fcb)

@@ -130,6 +130,20 @@
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/eb640ac4-76a2-4411-8c94-d2ce976ddd76)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/509aed2d-1fa0-4d97-9088-65cd7c5d290d)
 ![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/f26324b3-4822-433b-9204-e44fc8a0215f)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/278dd9c3-4c69-421b-b9d9-d2fb08f76307)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/53a95744-7a42-48dc-88b8-a2f84a3cfdeb)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/5160f705-4193-44bf-9ce3-bdadba137b0c)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/2819ddc6-217d-496a-9d7c-a695ba8e8e1e)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/a0b7c01f-5d6f-4d04-9e2b-47a01dbf9777)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/d780bffa-0ed9-41d0-96e2-bbfbd2a1383e)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/66773102-a199-4d4f-abaa-00988056b8a5)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/d8bc5b4d-6b71-4a1d-b9be-25a051d0fd40)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/a5fdc086-a39d-45f0-bd8c-117138dc3a8d)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/e13b0e89-8b47-4a84-a9a4-4e391c883142)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/63e7f0c4-4ebe-46a9-b40e-1eaf356a3ac1)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/980e168c-8cb6-4573-ab6a-cee4fac19a4c)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/ebd87719-530f-4063-85fa-bfc4e33ce39b)
+![image](https://github.com/rolando1803/Joomla-4---crear-sitio-web/assets/55965131/d9d150f3-2899-4ee5-b9d4-e991b4475e78)
 
 
 
